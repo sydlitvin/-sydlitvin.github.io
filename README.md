@@ -1,1 +1,1 @@
-Map of My Favorite Destinations https://sydlitvin.github.io/-sydlitvin.github.io/
+Map of My Favorite Destinations https://sydlitvin.github.io/-sydlitvin.github.io/ 
